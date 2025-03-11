@@ -75,7 +75,7 @@ SEL-344 **Martha Jensen Home** built by Paul Petresun
 
 
 
-SEL-345 **Bessie Lloyd House** built in the 1940s  
+SEL-345 **Carl Nordenson House** built in 1946  
 ![](../assets/images/Bessie_Lloyd_Home.jpg)
 
 
